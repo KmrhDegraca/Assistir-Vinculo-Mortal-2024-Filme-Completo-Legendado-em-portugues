@@ -9,7 +9,7 @@ ASSISTIR AGORA ►► [Assistir Vínculo Mortal: LONGLEGS 2024 Filme Completo Em
 
 BAIXAR AGORA ►► [Vínculo Mortal: LONGLEGS Online Dublado HD Em Português](https://cine.yeshq.biz/pt/movie/1226578)
 
-<p><img src="https://media.themoviedb.org/t/p/w220_and_h330_face/1R5Pk4UX9nBZMtilMP3ZbyPfWeD.jpg" alt="Vínculo Mortal: LONGLEGS Filme Completo Dublado" width="500" height="282" /><br /><a href="https://cine.yeshq.biz/pt/movie/1226578" target="_blank"><img src="https://i.imgur.com/K7B0WaG.png" alt="Vínculo Mortal: LONGLEGS Filme" width="441" height="99" /></a></p>
+<p><img src="https://image.tmdb.org/t/p/original/1R5Pk4UX9nBZMtilMP3ZbyPfWeD.jpg" alt="Vínculo Mortal: LONGLEGS Filme Completo Dublado" width="500" height="282" /><br /><a href="https://cine.yeshq.biz/pt/movie/1226578" target="_blank"><img src="https://i.imgur.com/K7B0WaG.png" alt="Vínculo Mortal: LONGLEGS Filme" width="441" height="99" /></a></p>
 <p>&nbsp;</p>
 
 
